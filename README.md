@@ -4,7 +4,7 @@ A complete guide about comfort and style of girls' t-shirts.
 
 ## Comfort That Defines Daily Wear
 
-The biggest reason for the popularity of [girls' t-shirts](https://www.whitelearn.in/sumita/blog/) is comfort. Soft fabrics like cotton and blended materials make them ideal for long hours of wear. Girls prefer clothing that feels light, breathable, and easy to move in, especially for daily activities like school, college, and travel.
+The biggest reason for the popularity of [girls' T-Shirts](https://www.whitelearn.in/sumita/blog/) is comfort. Soft fabrics like cotton and blended materials make them ideal for long hours of wear. Girls prefer clothing that feels light, breathable, and easy to move in, especially for daily activities like school, college, and travel.
 
 ## Why Choose Quality T-Shirts?
 
